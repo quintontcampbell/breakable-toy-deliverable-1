@@ -9,3 +9,11 @@ DevReps
  Braaaaaain problems.
  GET STRONGER AND BECOME THE HIGH-LEVEL DEV YOU'RE MEANT TO BE with
  DevReps.
+
+ --------
+
+ Maybe some sort of health resource app... or something.
+
+ --------
+
+ Weed resource app because that industry is about to super pop off (it already is)
